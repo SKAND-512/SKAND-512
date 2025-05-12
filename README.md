@@ -3,4 +3,4 @@
 - 💞️ I’m looking to collaborate on going outside.
 - 📫 How to reach me: pls dont.
 - 😄 Pronouns: Ichigo.
-- ⚡ Fun fact: nil.
+- ⚡ Fun fact: 💔😔🙏🏿.
