@@ -1,7 +1,6 @@
-- 👋 Hi, I’m SKAND CHOUDHARY.
-- 👀 I’m interested in Web Development and playing Video Games.
-- 🌱 I’m currently learning everything I can from top-to-bottom.
-- 💞️ I’m looking to collaborate on getting a life.
-- 📫 How to reach me: @skand_060 on Instagram or choudhary.skand@gmail.com.
+- 👋 SKAND.
+- 👀 Interested in Web Dev and programming.
+- 💞️ I’m looking to collaborate on going outside.
+- 📫 How to reach me: pls dont.
 - 😄 Pronouns: Ichigo.
-- ⚡ Fun fact: There is nothing fun about me😊.
+- ⚡ Fun fact: nil.
